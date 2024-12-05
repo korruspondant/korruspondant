@@ -3,4 +3,4 @@
 
 
 
-  c+h,  pm fans say hellooo! 
+ yea I really got nothing here. whisper if i dont answer,  pm fans drop by!!! 
