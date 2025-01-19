@@ -7,5 +7,3 @@ i had to do something/net issues dont wait for me anymore
 
 yea I really got nothing here. whisper if i dont answer,  pm fans drop by!
 
-
-![image](https://github.com/user-attachments/assets/5cd5429b-8ffb-48b0-96b3-5a4b34f7b6df)
