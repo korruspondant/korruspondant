@@ -5,5 +5,5 @@
 c+h always. If i ever disconnect and i dont come back after awhile 
 i had to do something/net issues dont wait for me anymore
 
-yea I really got nothing here. whisper if i dont answer,  pm fans drop by!
+whisper if i dont answer,  pm fans drop by!
 
